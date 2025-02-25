@@ -6,4 +6,5 @@ This is a repository for a book that anyone can download, read and edit for free
   3. No politics or controversial topics
   4. No real-life counterparts/degradation of real life people please. You can recreate a story as long as it's reasonibly changed so it can't be identified.
   5. No harassing others via the book.
+
 That's it! Happy reading/editing!
